@@ -1,0 +1,1 @@
+eheğ kimsem kimim işte
